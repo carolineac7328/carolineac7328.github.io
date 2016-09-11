@@ -18,3 +18,4 @@ So far the class is still going well, and I've really enjoyed the material so fa
 ## Tip of the week:
 Since the career fair is coming up soon and we're all starting to think about applying for jobs, I wanted to remind everyone to use the College of Natural Sciences career website, Handshake. I know a lot of friends who have never used or looked at the site, but I've found that it's the most effective way to submit your resume and schedule on campus interviews with companies. Recruiters at the career fair have always told me to apply through Handshake because that's how they can request interviews with you and have access to our information more easily, so if you haven't made an account yet, I would suggest doing so in the next week! You can create an account here: <https://utcns.joinhandshake.com/login>
 
+ 
